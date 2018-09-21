@@ -57,7 +57,7 @@
 <img src="http://ww1.sinaimg.cn/large/006v0omggy1fvgzwth0dvj30u715fwgz.jpg" width="300"/>
 
 ### 赞助老铁
-@TNOID| 咸鱼萌新|破墙机场
+@TNOID| 咸鱼萌新|破墙机场 @anlio
 
 ### 原作者介绍
 
